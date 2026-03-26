@@ -1,4 +1,4 @@
-## Hi there 👋
+## Heyy Everyone 👋 I'm Geethanjali..
 
 # 💫 About Me:
 🌱 I’m currently learning
